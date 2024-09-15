@@ -22,4 +22,4 @@ About me
 
 • 📫 You can contact me at m.khalifa5000@gmail.com
 
-Thank you for visiting my profile.
+• Thank you for visiting my profile.
